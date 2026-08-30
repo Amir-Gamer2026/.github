@@ -1,18 +1,40 @@
-# 🎮 Amir Gamer 2026
+#  # 🎮 Amir Gamer 2026
 
-Welcome to Amir Gamer 2026 Minecraft Community ⛏️
-
-## 🔗 Links
-
-Email  
-https://youtube.com/@king_single_gojo
-
- Discord  
-https://discord.gg/4qQ7q2ycyc
-
-Email  
-rrf.miri@gmail.com
+### 🎮 Gamer & Developer | 🚀 Creating cool stuff | 💻 Learning every day
 
 ---
 
-🔥 Minecraft | Gaming | Projects
+## 👋 Welcome!
+
+Welcome to **Amir Gamer 2026** 🎮
+
+We're building a gaming & development community focused on creating cool projects, learning new things, and having fun! 🚀
+
+---
+
+## 🔗 Links
+
+### Discord
+[Join our Discord Server](https://discord.gg/4qQ7q2ycyc)
+
+### YouTube
+[My YouTube Channel](https://youtube.com/@king_single_gojo)
+
+### 🌐 Website
+[Visit our Website](https://fatemehmiri.github.io/Amir-gamer-2026/)
+
+---
+
+## 🛠️ What We Do
+
+- 🎮 Gaming
+- 💻 Programming
+- 🌐 Web Development
+- 🚀 Cool Projects
+- 📚 Learning & Sharing
+
+---
+
+## ⭐ Thanks for visiting!
+
+**Amir Gamer 2026** ❤️

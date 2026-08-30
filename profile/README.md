@@ -4,13 +4,13 @@ Welcome to Amir Gamer 2026 Minecraft Community ⛏️
 
 ## 🔗 Links
 
-▶️ YouTube  
+Email  
 https://youtube.com/@king_single_gojo
 
-💬 Discord  
-https://discord.gg/4qQ7q2yc
+ Discord  
+https://discord.gg/4qQ7q2ycyc
 
-📧 Email  
+Email  
 rrf.miri@gmail.com
 
 ---

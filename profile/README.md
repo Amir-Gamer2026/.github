@@ -15,7 +15,7 @@ We're building a gaming & development community focused on creating cool project
 ## 🔗 Links
 
 ### Discord
-[Join our Discord Server](https://discord.gg/4qQ7q2ycyc)
+[Join our Discord Server](https://discord.gg/3qpTs9gYT)
 
 ### YouTube
 [My YouTube Channel](https://youtube.com/@king_single_gojo)

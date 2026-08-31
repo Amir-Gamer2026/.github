@@ -1,6 +1,6 @@
-![Amir Gamer 2026](./amir-gamer-typewriter.gif)
 
-![Amir Gamer 2026](./amir-gamer-animated-text.gif)
+
+[🚀 Git Start](https://fatemehmiri.github.io/hello-world/)
 #  # 🎮 Amir Gamer 2026
 
 ### 🎮 Gamer & Developer | 🚀 Creating cool stuff | 💻 Learning every day

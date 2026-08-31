@@ -1,4 +1,6 @@
-[🚀 Git Start](https://fatemehmiri.github.io/hello-world/)
+![Amir Gamer 2026](./اسم-فایل-gif.gif)
+[🚀 Git Start]
+(https://fatemehmiri.github.io/hello-world/)
 
 ![Amir Gamer 2026](./amir-gamer-animated-text.gif)
 #  # 🎮 Amir Gamer 2026

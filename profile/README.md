@@ -1,4 +1,4 @@
-![Amir Gamer 2026](./amir-gamer-rgb-typewriter-stays.gif)
+![Amir Gamer 2026](./amir-gamer-typewriter.gif)
 
 
 #  # 🎮 Amir Gamer 2026
